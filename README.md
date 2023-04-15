@@ -7,7 +7,6 @@ FRESHER LOOKING FOR IT JOBS
 I AM A HARDWORKING PERSON CONTINUING TO UPGRADE MY TECHNOLOGY SKILLS AND DETERMINED TO ACHIEVE A FORMIDABLE ROLE IN A RENOWNED ORGANISATION
 
 * 🌍  I'm based in GUDUVANCHERY,CHENGALPET DISTRICT,TAMILNADU,INDIA
-* 🖥️  See my portfolio at [SHARATH R D](http://https://rds02101997.wixsite.com/portfolio)
 * ✉️  You can contact me at [sharath.dhanam1997@gmail.com](mailto:sharath.dhanam1997@gmail.com)
 * 🧠  I'm learning JAVA
 * 🤝  I'm open to collaborating on PROJECTS
